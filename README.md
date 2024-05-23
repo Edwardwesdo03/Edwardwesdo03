@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...a LAN tool to monitor remote control, File transfer ,Desktop sharing and messaging
-- 📫 How to reach me ...wewsdowes123@gmail.com
+- 📫 How to reach me ...wesdowes123@gmail.com
 - 😄 Pronouns: ...HE
 - ⚡ Fun fact: ..In the course of a lifetime the average person will grow 2 meters of nose hair.
 
